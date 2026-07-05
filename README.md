@@ -1,7 +1,10 @@
-## Hi there 👋
+## helooo!!  star is here!  
 
+
+
+fav fandoms: murder drones , dandys world , vocaloids
 <img width="2590" height="842" alt="IMG_۲۰۲۶۰۶۳۰_۰۹۰۳۱۷," src="https://github.com/user-attachments/assets/b7633fc8-0421-41bb-b4e6-f3e40931364d" />
-a little drawing of my fandoms!!
+a little drawing of fav fandoms!!
 
 
 
