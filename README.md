@@ -15,7 +15,8 @@ i will post more later!!   if you have any idea to draw smt tell me!
 
 iam with this skin on dandy's world fan place!
 
-<img width="320" height="400" alt="pony-town-☆ ιтѕ вoввeт!_ w2i _ dnc-dance-sit-blinking-fixed-padded-toy8-4x (1)" src="https://github.com/user-attachments/assets/a83c0130-8dd1-4b06-8f5d-fa00303d2c39" />
+<img width="320" height="400" alt="pony-town-☆ ιтѕ вoввeт!_ w2i _ dnc-dance-sit-blinking-fixed-padded-toy8-4x" src="https://github.com/user-attachments/assets/63268c73-b2fe-44fc-9b35-ed71c168224a" />
+
 
 
 its up when you spawn on pony town  dont forget to w2i!!!
