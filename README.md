@@ -5,10 +5,10 @@ hᥱყᥲ
 
 ᴘʀᴏɴᴏᴜɴᴄᴇᴅ ᴀꜱ ꜱʜᴇ/ʜᴇʀ 💝
 
-ᴮⁱˢᵉˣᵘᵃˡ , ˡᵃˢᵇᵃⁱⁿ :3
-
 <img width="735" height="490" alt="b2aa521ff3e861d26c0836dbb705d01a" src="https://github.com/user-attachments/assets/ee9ae5b7-66b6-4dca-ae13-d32076a6f054" />
 .art not mine.
+
+ᴮⁱˢᵉˣᵘᵃˡ , ˡᵃˢᵇᵃⁱⁿ :3
 
 mყ fᥲᥒdomᥱs : mυrdᥱr droᥒᥱs💀⊹dᥲᥒdყs worᥣd🌻⊹ tᥲdᥴ🎪⊹ voᥴᥲᥣoιds🎤⊹ ᥲᥒd morᥱ...
   
