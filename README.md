@@ -5,8 +5,8 @@ hᥱყᥲ
 
 ᴘʀᴏɴᴏᴜɴᴄᴇᴅ ᴀꜱ ꜱʜᴇ/ʜᴇʀ 💝
 
-<img width="736" height="554" alt="image" src="https://github.com/user-attachments/assets/a7a0b25f-f117-482a-b2e1-469e9f9666ed" />
-WATCH OUT !!
+<img width="735" height="641" alt="image" src="https://github.com/user-attachments/assets/2c0aea95-7b77-408e-a594-94039f001000" />
+
 
 ᴮⁱˢᵉˣᵘᵃˡ , ˡᵃˢᵇᵃⁱⁿ :3
 
